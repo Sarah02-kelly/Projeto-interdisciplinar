@@ -1,2 +1,2 @@
-# Projeto-interdisciplinar
+# OGGIRINAIS
 Sarah Kelly, Alicia e Júlia
